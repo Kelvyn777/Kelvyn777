@@ -1,4 +1,4 @@
-Prazer, Kelvyn Farias 👾
+- 👾 Prazer, Kelvyn Farias 
 
 - 🔭 Atualmente estou estudando na GENERATION BRAZIL
 - 🌱 Atualmente estou aprendendo a linguagem JAVA
